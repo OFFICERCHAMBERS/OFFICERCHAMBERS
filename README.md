@@ -5,7 +5,7 @@
 <br><br><b>"YOU STAY SOFT, YOU GET BEATEN."</b>
 <br>
 <br><img src="https://dividers.crd.co/assets/images/gallery09/5e0c488c.png?v=05d33f91" width="350px">
-<br><br>➤ Rhys / Reagan ╏ He/Him ╏ Twenty-One
+<br><br>➤ Rhys / Kerry ╏ He/Him ╏ Twenty-One
 <br>➤ Resident <b>British</b> / <b>Irish</b> lurker on this hellsite.
 <br>➤ Normally AFK at docks, with <a href="https://github.com/Sharksters">Sharkie</a>, <a href="https://github.com/6x6x6x1">One</a> or <a href="https://github.com/beastofblood">Atlas</a>!
 <br>
