@@ -12,7 +12,7 @@
 <br><img src="https://dividers.crd.co/assets/images/gallery09/5e0c488c.png?v=05d33f91" width="350px">
 <br>
 <br>Links ... n' stuff !
-  <br> <a href="https://eurodyneism.atabook.org">Atabook</a> | <a href="https://patreon.com/EURODYNEISM">Patreon</a> | <a href="https://rentry.co/EURODYNED">Rentry</a> | <a href="https://officerchambers.straw.page">Strawpage</a> |  <a href="https://artfight.net/~hypericns">ArtFight</a>
+  <br> <a href="https://eurodyneism.atabook.org">Atabook</a> | <a href="https://patreon.com/EURODYNEISM">Patreon</a> | <a href="https://rentry.co/EURODYNED">Rentry</a> | <a href="https://eurodynes.straw.page">Strawpage</a> |  <a href="https://artfight.net/~hypericns">ArtFight</a>
 <br>
 <br><img src="https://dividers.crd.co/assets/images/gallery09/5e0c488c.png?v=05d33f91" width="350px">
 <br>
